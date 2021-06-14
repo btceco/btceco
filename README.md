@@ -1,7 +1,7 @@
 # Bitcoin-Eco
 <h1>Environmental Sustainable Bitcoin Evolution<h1> 
 
-<h2>Bitcoin Eco: A environmentally sustainable Peer-to-Peerel ectronic value system<h2>
+<h2>Bitcoin Eco: A environmentally sustainable Peer-to-Peer electronic value system<h2>
 
 
 ![GitHub Logo](http://btc-eco.com/wp-content/uploads/2021/06/Bitcoin-Eco-Wallet-Icon-30-percent-.png)
