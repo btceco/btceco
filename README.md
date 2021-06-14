@@ -25,9 +25,9 @@
 * A viable environmentallysustainable transfer of value must be established. 
 
 _The next exciting phase of Bitcoin is the shedding of the stigmas that rendered Bitcoin flawed. 
-The possibilities are endless for a Bitcoin unencumbered bythe guilt of damaging the environment that bitcoin mining is associated. 
+The possibilities are endless for a Bitcoin unencumbered by the guilt of damaging the environment that bitcoin mining is associated. 
 A Bitcoin free of shortcomings is the value revolution Bitcoin started. A faster more capable Bitcoin yields the future of all value.
-Bitcoin Eco is the solutionSOLUTIONTransfer the value of Bitcoin to an environmentally sustainable faster more capable vehicle of evolution. 
+Bitcoin Eco is the solution. Transfer the value of Bitcoin to an environmentally sustainable faster more capable vehicle of evolutionary value. 
 Bitcoin Eco is fast and environmentally sustainable._ 
 
 
@@ -64,23 +64,23 @@ Phase-2 Automated Value TransferVoting among the Bitcoin Eco community will dete
 
 Phase -2. 
 If its  determined.. Not a good idea for security purposes we will continue doing p2p value transfer. More time consuming but less vulnerabilities.
-A system will be in place so you can transfer value from BTC to BTCECO through an automated secure platform if the community votes positively.
-Deadline for Value transfer? This will be voted on by the Bitcoin Eco community. Obviously each day or year we delay the on boarding deadline is one more day or year
-we are supporting the wasteful usageof around 110 Terawatt Hours per year “More electricity used than some countries”.  
+A system can be in place so you can transfer value from BTC to BTCECO through an automated secure platform if the community votes positively.
+Deadline for value transfer? This will be voted on by the Bitcoin Eco community. Obviously each day or year we delay the on boarding deadline is one more day or year
+we are supporting the wasteful usage of around 110 Terawatt Hours per year “More electricity used than some countries”.  
 
-The on-boarding time will depend on the community vote.What happens if some Bitcoin users don’t transfer value to Bitcoin Eco
+The on-boarding time will depend on the community vote. What happens if some Bitcoin users don’t transfer value to Bitcoin Eco
 Two theories have emerged .
-One is Bitcoin Eco will render a massive amount of Bitcoins “VOID” by sending them to Annihilation Address. 
+One is Bitcoin Eco will render a massive amount of Bitcoin “VOID” by sending them to Annihilation Address. 
 This would cripple the total supply of Bitcoin to a point leaving it unsuitable as a value system. 
 Another theory is Bitcoin Eco will remove a great deal of Bitcoin from circulation and making Bitcoin  more valuable.
 
 Hopefully people will see the massive unnecessary waste of energy Bitcoin mining facilitates and be happy to transfer value to a more environmentally sustainable
-Bitcoin Eco.Better Late than Never Why accept an environmentally damaging consequence to a solvable problem? Bitcoin and its problems exists in ones and zeros. 
-The solution will be found in the same place.Bitcoin will eventually destroy itself. In a world taking extreme measures to limit carbon footprints.
+Bitcoin Eco.Better Late than Never... Why accept an environmentally damaging consequence to a solvable problem? Bitcoin and its problems exists in ones and zeros. 
+The solution will be found in the same place. Bitcoin will eventually destroy itself. In a world taking extreme measures to limit carbon footprints.
 
 How could Bitcoin ever survive such an obvious infrastructure built on wasting energy? Bitcoin mining is a redundant  energy wasting version of Proof of Stake. 
 The person or people who invest the most money on a Bitcoin mining operation will get the most Bitcoin rewards. The bigger the mining operation. 
-The larger the Bitcoin reward.Bitcoin has inspired great loyalty. Convincing some to B Eco would be like like trying to convince a cat it wants to go swimming. 
+The larger the Bitcoin reward. Bitcoin has inspired great loyalty. Convincing some to B Eco would be like like trying to convince a cat it wants to go swimming. 
 
 They wont see Bitcoin as the sinking ship tell they are floating in the water. The Earth is our mother and our loyalty should be to do whats best for her. 
 This GreenPaper is short because everyone knows Why we need something like BTCECO. Everyone knows what is wrong with Bitcoin. 
